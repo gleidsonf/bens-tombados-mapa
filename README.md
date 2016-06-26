@@ -1,0 +1,1 @@
+#Bens tombados Fortaleza
